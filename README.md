@@ -1,0 +1,2 @@
+# Plachetnice
+(c) Miroslav Vaculka
